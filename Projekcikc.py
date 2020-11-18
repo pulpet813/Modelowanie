@@ -1,0 +1,1 @@
+Legia to uje a lech miszcz polski
